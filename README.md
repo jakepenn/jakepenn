@@ -1,5 +1,5 @@
 
-## Hey! I'm Jacob Penn
+## Hey! I'm Jake Penn
 
 Founder / CEO @ [Minimal Audio](https://www.minimal.audio)
 
